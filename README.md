@@ -1,6 +1,7 @@
-## HHiii, this is Juynayed 🥷
+## HHiii, this is Junayed 🥷
 
 - 😎 I’m currently learning n0thing...
+- ⚡ Fun fact: I sometimes talk to my laptop just to motivate it
 <!--
 **JUN4Y3D/JUN4Y3D** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
